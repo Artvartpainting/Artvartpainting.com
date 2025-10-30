@@ -1,1 +1,0 @@
-Artvart# Artvartpainting.com
